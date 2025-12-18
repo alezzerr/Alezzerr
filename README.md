@@ -1,16 +1,61 @@
-##Partner in Crime ᯓ★
+𝙋𝙖𝙧𝙩𝙣𝙚𝙧 𝙞𝙣 𝘾𝙧𝙞𝙢𝙚 ᯓ★
 
-<!--
-**alezzerr/Alezzerr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/835d55ed-fb5c-4f44-8fca-09793b437bf8" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+.ᐟ 
+ нello lαdιeѕ αɴd ɢeɴтleмαɴ! ι'м αleх ɴιce тo мeeт yoυ. тнe pυrpoѕe oғ мαĸιɴɢ тнιѕ ιѕ ғor everyoɴe тo ĸɴow мe вeттer
+ 
+*ɴoтe: pleαѕe reαd ιт вeғore ιɴт
+
+>  𝙎𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙄 𝙡𝙞𝙠𝙚 𝙖𝙣𝙙 𝙡𝙤𝙫𝙚 𝙞𝙩 ☂︎
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚌𝚘𝚕𝚘𝚛: 𝙿𝚞𝚛𝚙𝚕𝚎, 𝚙𝚒𝚗𝚔, 𝚛𝚎𝚍, 𝚋𝚕𝚊𝚌𝚔
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚏𝚘𝚘𝚍 𝚊𝚗𝚍 𝚍𝚛𝚒𝚗𝚔: 𝙼𝚒𝚡𝚎𝚍 𝙽𝚘𝚘𝚍𝚕𝚎𝚜, 𝚝𝚎𝚊 𝚊𝚗𝚍 𝚘𝚛𝚊𝚗𝚐𝚎 𝚓𝚞𝚒𝚌𝚎
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚊𝚗𝚒𝚖𝚊𝚕𝚜: 𝚃𝚞𝚛𝚝𝚕𝚎𝚜, 𝙵𝚛𝚘𝚐𝚜, 𝚙𝚎𝚗𝚐𝚞𝚒𝚗𝚜 𝚊𝚗𝚍 𝚍𝚞𝚌𝚔𝚜
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚜𝚞𝚋𝚓𝚎𝚌𝚝: 𝙴𝚗𝚐𝚕𝚒𝚜𝚑 𝚊𝚗𝚍 𝙶𝚢𝚖𝚗𝚊𝚜𝚝𝚒𝚌
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚃𝚅 𝚜𝚑𝚘𝚠𝚜, 𝚊𝚗𝚒𝚖𝚎: 𝚃𝚒𝚖 𝚊𝚗𝚍 𝙹𝚎𝚛𝚛𝚢, 𝙵𝚊𝚒𝚛𝚢 𝚃𝚊𝚒𝚕, 𝙾𝚗𝚎 𝙿𝚒𝚎𝚌𝚎, 𝙳𝚎𝚖𝚘𝚗 𝚂𝚕𝚊𝚢𝚎𝚛 
+
+↝𝙵𝚊𝚟𝚘𝚛𝚒𝚝𝚎 𝚐𝚊𝚖𝚎: 𝚄𝚗𝚍𝚎𝚛𝚝𝚊𝚕𝚎, 𝙳𝚘𝚔𝚒 𝙳𝚘𝚔𝚒, 𝙾𝚋𝚎𝚢 𝚖𝚎, 𝙶𝚎𝚗𝚜𝚑𝚒𝚗 𝙸𝚖𝚙𝚊𝚌𝚝, 𝙶𝚊𝚌𝚑𝚊
+
+↝𝙳𝚊𝚒𝚕𝚢 𝚑𝚊𝚋𝚒𝚝: 𝙴𝚊𝚝, 𝚂𝚕𝚎𝚎𝚙, 𝚂𝚝𝚞𝚍𝚢, 𝚁𝚎𝚊𝚍ing book
+
+![𓆝 𓆟 𓆞 𓆝⭒˚｡⋆   HANASATO MINORI ](https://github.com/user-attachments/assets/8fe63b2e-5cae-493a-a23c-74f94ee80e52)
+
+
+
+> 𝘽𝙚𝙛𝙤𝙧𝙚 𝙩𝙚𝙭𝙩𝙞𝙣𝙜 𝙢𝙚𖥸
+
+➻𝙿𝚕𝚎𝚊𝚜𝚎 𝚍𝚘𝚗'𝚝 𝚞𝚜𝚎 𝚙𝚛𝚘𝚏𝚊𝚗𝚒𝚝𝚢 
+
+➻𝙸'𝚖 𝚗𝚘𝚝 𝚊 𝚕𝚘𝚟𝚎𝚛 𝚊𝚗𝚍 𝙸'𝚖 𝚗𝚘𝚝 𝚊 𝚝𝚞𝚝𝚘𝚛, 𝚜𝚘 𝚍𝚘𝚗'𝚝 𝚖𝚊𝚔𝚎 𝚖𝚎 𝚜𝚘𝚕𝚟𝚎 𝚢𝚘𝚞𝚛 𝚑𝚘𝚖𝚎𝚠𝚘𝚛𝚔 𝚏𝚘𝚛 𝚢𝚘𝚞
+
+➼𝙸𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚖𝚎 𝚝𝚘 𝚜𝚞𝚋𝚜𝚌𝚛𝚒𝚋𝚎 𝚝𝚘 𝚊 𝚌𝚑𝚊𝚗𝚗𝚎𝚕 𝚘𝚛 𝚜𝚘𝚖𝚎𝚝𝚑𝚒𝚗𝚐 𝚕𝚒𝚔𝚎 𝚝𝚑𝚊𝚝, 𝚌𝚑𝚊𝚗𝚐𝚎 𝚘𝚛 𝙸'𝚕𝚕 𝚋𝚕𝚘𝚌𝚔
+
+
+──── ୨୧ ────
+
+<img width="1137" height="638" alt="image" src="https://github.com/user-attachments/assets/b34370a0-a482-4413-8c58-aa2ac945e5a7" />
+
+
+>𝙒𝙝𝙚𝙧𝙚 𝙩𝙤 𝙛𝙞𝙣𝙙 𝙢𝙚?
+
+╰┈➤ 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘧𝘪𝘯𝘥 𝘮𝘦 𝘪𝘯 𝘜𝘛𝘢𝘶, 𝘖𝘣𝘦𝘺 𝘮𝘦, 𝘊𝘙𝘒 𝘢𝘳𝘦𝘢𝘴 ; 𝘧𝘳𝘦𝘦 𝘤+𝘩 !!
+
+▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10♡♡♡
+
+☐☐　💌　﹐
+
+　✦　　﹐⁠𐔌՞. .՞𐦯　⌒⌒
+ 
+🎲　 𓈒 ⁠&gt;⩊&lt;　　⋌ ⠀ ◌⃘.
+
+
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9af8fc5c-048d-45a3-b166-31fe9f50e475" />
+
+═══════════════════════════════════════════════════════════════ ୭˚. ᵎᵎ
