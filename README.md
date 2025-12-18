@@ -109,6 +109,7 @@ Listening to: Dreamspace
 🎲　 𓈒 ⁠&gt;⩊&lt;　　⋌ ⠀ ◌⃘.
 
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/9af8fc5c-048d-45a3-b166-31fe9f50e475" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ba0f557a-442b-4f5f-b2a2-9fbe4c55d294" />
+
 
 ═══════════════════════════════════════════════════════════════ ୭˚. ᵎᵎ
