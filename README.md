@@ -1,7 +1,7 @@
 𝙋𝙖𝙧𝙩𝙣𝙚𝙧 𝙞𝙣 𝘾𝙧𝙞𝙢𝙚 ᯓ★
 
 
-<img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/835d55ed-fb5c-4f44-8fca-09793b437bf8" />
+<img width="736" height="416" alt="image" src="https://github.com/user-attachments/assets/abf94a96-a6c9-4d1e-9910-3b0b145a6457" />
 
 ⋘ 𝑙𝑜𝑎𝑑𝑖𝑛𝑔 𝑑𝑎𝑡𝑎... ⋙
 
@@ -91,7 +91,8 @@ Listening to: Dreamspace
 
 ──── ୨୧ ────
 
-<img width="736" height="1067" alt="image" src="https://github.com/user-attachments/assets/f9cfe30e-45a2-41d4-b0fa-f37990e8fe97" />
+<img width="1200" height="669" alt="image" src="https://github.com/user-attachments/assets/6a46a043-0823-41b7-9554-54621c788b3f" />
+
 
 
 >𝙒𝙝𝙚𝙧𝙚 𝙩𝙤 𝙛𝙞𝙣𝙙 𝙢𝙚?
@@ -109,7 +110,8 @@ Listening to: Dreamspace
 🎲　 𓈒 ⁠&gt;⩊&lt;　　⋌ ⠀ ◌⃘.
 
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/ba0f557a-442b-4f5f-b2a2-9fbe4c55d294" />
+<img width="736" height="1067" alt="image" src="https://github.com/user-attachments/assets/4db78a1a-0b46-4a52-80c7-5dbf12c39597" />
+
 
 
 ═══════════════════════════════════════════════════════════════ ୭˚. ᵎᵎ
