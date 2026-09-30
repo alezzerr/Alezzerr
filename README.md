@@ -91,7 +91,7 @@ Listening to: Dreamspace
 
 ──── ୨୧ ────
 
-<img width="1137" height="638" alt="image" src="https://github.com/user-attachments/assets/b34370a0-a482-4413-8c58-aa2ac945e5a7" />
+<img width="736" height="1067" alt="image" src="https://github.com/user-attachments/assets/f9cfe30e-45a2-41d4-b0fa-f37990e8fe97" />
 
 
 >𝙒𝙝𝙚𝙧𝙚 𝙩𝙤 𝙛𝙞𝙣𝙙 𝙢𝙚?
